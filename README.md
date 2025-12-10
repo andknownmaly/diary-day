@@ -1,7 +1,6 @@
 # Daily Quote
 
-> lead to victory. Small steps every day lead to your legacy. Never
+> underestimate the power of nobody notices. Consistency beats nobody
 
 ---
-
-Generated automatically by my daily script.
+andknownmaly
