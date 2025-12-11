@@ -1,6 +1,6 @@
 # Daily Quote
 
-> underestimate the power of nobody notices. Consistency beats nobody
+> notices. Your progress today becomes your better days tomorrow.
 
 ---
 andknownmaly
