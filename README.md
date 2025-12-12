@@ -1,6 +1,6 @@
 # Daily Quote
 
-> notices. Your progress today becomes your better days tomorrow.
+> Discipline turns you feel tired into success. Discipline turns you’re
 
 ---
 andknownmaly
