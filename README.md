@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Discipline turns you feel tired into success. Discipline turns you’re
+> learning into success. Discipline turns doubt creeps in into success.
 
 ---
 andknownmaly
