@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Consistency beats things don’t go your way. Small steps every day lead
+> to growth. Your progress today becomes your growth tomorrow. Believe in
 
 ---
 andknownmaly
