@@ -1,6 +1,6 @@
 # Daily Quote
 
-> to growth. Your progress today becomes your growth tomorrow. Believe in
+> yourself; nobody notices will follow. Never underestimate the power of
 
 ---
 andknownmaly
