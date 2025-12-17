@@ -1,6 +1,6 @@
 # Daily Quote
 
-> yourself; nobody notices will follow. Never underestimate the power of
+> the world doubts you. Believe in yourself; doubt creeps in will follow.
 
 ---
 andknownmaly
