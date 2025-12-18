@@ -1,6 +1,6 @@
 # Daily Quote
 
-> the world doubts you. Believe in yourself; doubt creeps in will follow.
+> Small steps every day lead to big results. Discipline turns you’re
 
 ---
 andknownmaly
