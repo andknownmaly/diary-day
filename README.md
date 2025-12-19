@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Small steps every day lead to big results. Discipline turns you’re
+> learning into success. Stay focused; it gets tough can’t stop you. A
 
 ---
 andknownmaly
