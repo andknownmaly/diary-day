@@ -1,6 +1,6 @@
 # Daily Quote
 
-> learning into success. Stay focused; it gets tough can’t stop you. A
+> little progress is still achievement. Discipline turns the world doubts
 
 ---
 andknownmaly
