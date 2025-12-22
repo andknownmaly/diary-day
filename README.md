@@ -1,6 +1,6 @@
 # Daily Quote
 
-> little progress is still achievement. Discipline turns the world doubts
+> you into success. Keep pushing forward, even when you feel tired. Keep
 
 ---
 andknownmaly
