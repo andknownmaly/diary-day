@@ -1,6 +1,6 @@
 # Daily Quote
 
-> pushing forward, even when the world doubts you. Stay focused; you’re
+> learning can’t stop you. Keep pushing forward, even when the obstacles
 
 ---
 andknownmaly
