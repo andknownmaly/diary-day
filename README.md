@@ -1,6 +1,6 @@
 # Daily Quote
 
-> learning can’t stop you. Keep pushing forward, even when the obstacles
+> seem impossible. Believe in yourself; doubt creeps in will follow.
 
 ---
 andknownmaly
