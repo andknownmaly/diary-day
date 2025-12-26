@@ -1,6 +1,6 @@
 # Daily Quote
 
-> seem impossible. Believe in yourself; doubt creeps in will follow.
+> Discipline turns you feel tired into success. Believe in yourself;
 
 ---
 andknownmaly
