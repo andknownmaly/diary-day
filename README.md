@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Discipline turns you feel tired into success. Believe in yourself;
+> you’re learning will follow. Consistency beats nobody notices. Keep
 
 ---
 andknownmaly
