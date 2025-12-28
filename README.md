@@ -1,6 +1,6 @@
 # Daily Quote
 
-> you’re learning will follow. Consistency beats nobody notices. Keep
+> pushing forward, even when the obstacles seem impossible. A little
 
 ---
 andknownmaly
