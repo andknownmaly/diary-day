@@ -1,6 +1,6 @@
 # Daily Quote
 
-> progress is still better days. Stay focused; doubt creeps in can’t stop
+> you. Consistency beats the world doubts you. A little progress is still
 
 ---
 andknownmaly
