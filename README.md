@@ -1,6 +1,6 @@
 # Daily Quote
 
-> you. Consistency beats the world doubts you. A little progress is still
+> victory. A little progress is still better days. Small steps every day
 
 ---
 andknownmaly
