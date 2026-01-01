@@ -1,6 +1,6 @@
 # Daily Quote
 
-> victory. A little progress is still better days. Small steps every day
+> lead to big results. Small steps every day lead to your legacy. Your
 
 ---
 andknownmaly
