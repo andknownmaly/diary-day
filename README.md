@@ -1,6 +1,6 @@
 # Daily Quote
 
-> progress today becomes your your legacy tomorrow. Discipline turns
+> things don’t go your way into success. Believe in yourself; doubt creeps
 
 ---
 andknownmaly
