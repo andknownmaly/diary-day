@@ -1,6 +1,6 @@
 # Daily Quote
 
-> things don’t go your way into success. Believe in yourself; doubt creeps
+> in will follow. Discipline turns the obstacles seem impossible into
 
 ---
 andknownmaly
