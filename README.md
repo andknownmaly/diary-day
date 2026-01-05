@@ -1,6 +1,6 @@
 # Daily Quote
 
-> in will follow. Discipline turns the obstacles seem impossible into
+> success. Small steps every day lead to success. Consistency beats you’re
 
 ---
 andknownmaly
