@@ -1,6 +1,6 @@
 # Daily Quote
 
-> success. Small steps every day lead to success. Consistency beats you’re
+> learning. Stay patient; your future takes time. Stay patient; growth
 
 ---
 andknownmaly
