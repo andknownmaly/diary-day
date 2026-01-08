@@ -1,6 +1,6 @@
 # Daily Quote
 
-> takes time. Keep pushing forward, even when things don’t go your way.
+> Keep pushing forward, even when the world doubts you. Keep pushing
 
 ---
 andknownmaly
