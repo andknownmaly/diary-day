@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Keep pushing forward, even when the world doubts you. Keep pushing
+> forward, even when doubt creeps in. Stay patient; better days takes
 
 ---
 andknownmaly
