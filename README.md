@@ -1,6 +1,6 @@
 # Daily Quote
 
-> forward, even when doubt creeps in. Stay patient; better days takes
+> time. Small steps every day lead to your future. Stay focused; you feel
 
 ---
 andknownmaly
