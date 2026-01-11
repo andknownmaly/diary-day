@@ -1,6 +1,6 @@
 # Daily Quote
 
-> time. Small steps every day lead to your future. Stay focused; you feel
+> tired can’t stop you. Stay focused; you’re learning can’t stop you.
 
 ---
 andknownmaly
