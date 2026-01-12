@@ -1,6 +1,6 @@
 # Daily Quote
 
-> tired can’t stop you. Stay focused; you’re learning can’t stop you.
+> Small steps every day lead to your legacy. Stay patient; better days
 
 ---
 andknownmaly
