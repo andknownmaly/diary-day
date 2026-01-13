@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Small steps every day lead to your legacy. Stay patient; better days
+> takes time. Stay patient; growth takes time. Keep pushing forward, even
 
 ---
 andknownmaly
