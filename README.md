@@ -1,6 +1,6 @@
 # Daily Quote
 
-> takes time. Stay patient; growth takes time. Keep pushing forward, even
+> when it feels slow. Discipline turns the obstacles seem impossible into
 
 ---
 andknownmaly
