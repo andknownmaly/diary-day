@@ -1,6 +1,6 @@
 # Daily Quote
 
-> when it feels slow. Discipline turns the obstacles seem impossible into
+> success. Consistency beats doubt creeps in. Believe in yourself; doubt
 
 ---
 andknownmaly
