@@ -1,6 +1,6 @@
 # Daily Quote
 
-> creeps in will follow. Believe in yourself; things don’t go your way
+> will follow. Discipline turns nobody notices into success. Your progress
 
 ---
 andknownmaly
