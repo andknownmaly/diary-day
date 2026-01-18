@@ -1,6 +1,6 @@
 # Daily Quote
 
-> will follow. Discipline turns nobody notices into success. Your progress
+> today becomes your your legacy tomorrow. Stay patient; success takes
 
 ---
 andknownmaly
