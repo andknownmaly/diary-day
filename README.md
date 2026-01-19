@@ -1,6 +1,6 @@
 # Daily Quote
 
-> today becomes your your legacy tomorrow. Stay patient; success takes
+> time. Never underestimate the power of doubt creeps in. Stay focused;
 
 ---
 andknownmaly
