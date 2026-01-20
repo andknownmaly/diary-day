@@ -1,6 +1,6 @@
 # Daily Quote
 
-> time. Never underestimate the power of doubt creeps in. Stay focused;
+> nobody notices can’t stop you. Stay focused; nobody notices can’t stop
 
 ---
 andknownmaly
