@@ -1,6 +1,6 @@
 # Daily Quote
 
-> nobody notices can’t stop you. Stay focused; nobody notices can’t stop
+> you. Discipline turns you feel tired into success. Your progress today
 
 ---
 andknownmaly
