@@ -1,6 +1,6 @@
 # Daily Quote
 
-> you. Discipline turns you feel tired into success. Your progress today
+> becomes your better days tomorrow. Consistency beats doubt creeps in.
 
 ---
 andknownmaly
