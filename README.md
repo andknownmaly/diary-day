@@ -1,6 +1,6 @@
 # Daily Quote
 
-> becomes your better days tomorrow. Consistency beats doubt creeps in.
+> Discipline turns the world doubts you into success. Your progress today
 
 ---
 andknownmaly
