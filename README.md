@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Discipline turns the world doubts you into success. Your progress today
+> becomes your growth tomorrow. Keep pushing forward, even when the
 
 ---
 andknownmaly
