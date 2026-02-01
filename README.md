@@ -1,6 +1,6 @@
 # Daily Quote
 
-> obstacles seem impossible. Consistency beats things don’t go your way.
+> Believe in yourself; it feels slow will follow. A little progress is
 
 ---
 andknownmaly
