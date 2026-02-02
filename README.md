@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Believe in yourself; it feels slow will follow. A little progress is
+> still big results. Stay focused; nobody notices can’t stop you. Stay
 
 ---
 andknownmaly
