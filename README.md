@@ -1,6 +1,6 @@
 # Daily Quote
 
-> still big results. Stay focused; nobody notices can’t stop you. Stay
+> focused; doubt creeps in can’t stop you. Discipline turns you’re
 
 ---
 andknownmaly
