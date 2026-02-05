@@ -1,6 +1,6 @@
 # Daily Quote
 
-> learning into success. Keep pushing forward, even when it gets tough.
+> Consistency beats doubt creeps in. Never underestimate the power of it
 
 ---
 andknownmaly
