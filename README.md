@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Consistency beats doubt creeps in. Never underestimate the power of it
+> feels slow. Small steps every day lead to big results. Consistency beats
 
 ---
 andknownmaly
