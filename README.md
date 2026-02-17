@@ -1,6 +1,6 @@
 # Daily Quote
 
-> feels slow. Small steps every day lead to big results. Consistency beats
+> you feel tired. Stay patient; your legacy takes time. Small steps every
 
 ---
 andknownmaly
