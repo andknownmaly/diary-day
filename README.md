@@ -1,6 +1,6 @@
 # Daily Quote
 
-> you feel tired. Stay patient; your legacy takes time. Small steps every
+> day lead to growth. Small steps every day lead to success. Stay patient;
 
 ---
 andknownmaly
