@@ -1,6 +1,6 @@
 # Daily Quote
 
-> little progress is still big results. Keep pushing forward, even when
+> the world doubts you. Stay patient; big results takes time. Never
 
 ---
 andknownmaly
