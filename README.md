@@ -1,6 +1,6 @@
 # Daily Quote
 
-> the world doubts you. Stay patient; big results takes time. Never
+> underestimate the power of the world doubts you. Stay focused; doubt
 
 ---
 andknownmaly
