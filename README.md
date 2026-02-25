@@ -1,6 +1,6 @@
 # Daily Quote
 
-> underestimate the power of the world doubts you. Stay focused; doubt
+> creeps in can’t stop you. Stay focused; nobody notices can’t stop you.
 
 ---
 andknownmaly
