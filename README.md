@@ -1,6 +1,6 @@
 # Daily Quote
 
-> creeps in can’t stop you. Stay focused; nobody notices can’t stop you.
+> Keep pushing forward, even when things don’t go your way. Discipline
 
 ---
 andknownmaly
