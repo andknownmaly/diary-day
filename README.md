@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Keep pushing forward, even when things don’t go your way. Discipline
+> turns you’re learning into success. Your progress today becomes your
 
 ---
 andknownmaly
