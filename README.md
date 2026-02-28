@@ -1,6 +1,6 @@
 # Daily Quote
 
-> turns you’re learning into success. Your progress today becomes your
+> better days tomorrow. Never underestimate the power of nobody notices.
 
 ---
 andknownmaly
