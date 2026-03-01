@@ -1,6 +1,6 @@
 # Daily Quote
 
-> better days tomorrow. Never underestimate the power of nobody notices.
+> Stay patient; big results takes time. Stay focused; nobody notices can’t
 
 ---
 andknownmaly
