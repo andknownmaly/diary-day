@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Stay patient; big results takes time. Stay focused; nobody notices can’t
+> stop you. Keep pushing forward, even when it gets tough. Keep pushing
 
 ---
 andknownmaly
