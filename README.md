@@ -1,6 +1,6 @@
 # Daily Quote
 
-> forward, even when you feel tired. Stay patient; achievement takes time.
+> A little progress is still victory. Small steps every day lead to better
 
 ---
 andknownmaly
