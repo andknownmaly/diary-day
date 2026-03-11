@@ -1,6 +1,6 @@
 # Daily Quote
 
-> A little progress is still victory. Small steps every day lead to better
+> days. Stay patient; growth takes time. Believe in yourself; it gets
 
 ---
 andknownmaly
