@@ -1,6 +1,6 @@
 # Daily Quote
 
-> tough will follow. Believe in yourself; nobody notices will follow. Stay
+> focused; doubt creeps in can’t stop you. Discipline turns it feels slow
 
 ---
 andknownmaly
