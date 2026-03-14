@@ -1,6 +1,6 @@
 # Daily Quote
 
-> focused; doubt creeps in can’t stop you. Discipline turns it feels slow
+> into success. Consistency beats you feel tired. A little progress is
 
 ---
 andknownmaly
