@@ -1,6 +1,6 @@
 # Daily Quote
 
-> into success. Consistency beats you feel tired. A little progress is
+> still achievement. Stay focused; things don’t go your way can’t stop
 
 ---
 andknownmaly
