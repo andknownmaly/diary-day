@@ -1,6 +1,6 @@
 # Daily Quote
 
-> still achievement. Stay focused; things don’t go your way can’t stop
+> you. Stay focused; the world doubts you can’t stop you. Small steps
 
 ---
 andknownmaly
