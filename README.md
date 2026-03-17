@@ -1,6 +1,6 @@
 # Daily Quote
 
-> you. Stay focused; the world doubts you can’t stop you. Small steps
+> every day lead to growth. Stay patient; achievement takes time.
 
 ---
 andknownmaly
