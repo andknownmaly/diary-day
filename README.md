@@ -1,6 +1,6 @@
 # Daily Quote
 
-> every day lead to growth. Stay patient; achievement takes time.
+> Consistency beats the world doubts you. Never underestimate the power of
 
 ---
 andknownmaly
