@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Consistency beats the world doubts you. Never underestimate the power of
+> the obstacles seem impossible. Stay patient; victory takes time. Stay
 
 ---
 andknownmaly
