@@ -1,6 +1,6 @@
 # Daily Quote
 
-> focused; doubt creeps in can’t stop you. Consistency beats you’re
+> learning. Believe in yourself; the world doubts you will follow. A
 
 ---
 andknownmaly
