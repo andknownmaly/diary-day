@@ -1,6 +1,6 @@
 # Daily Quote
 
-> learning. Believe in yourself; the world doubts you will follow. A
+> little progress is still growth. Believe in yourself; the world doubts
 
 ---
 andknownmaly
