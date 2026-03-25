@@ -1,6 +1,6 @@
 # Daily Quote
 
-> little progress is still growth. Believe in yourself; the world doubts
+> you will follow. Discipline turns doubt creeps in into success. Believe
 
 ---
 andknownmaly
