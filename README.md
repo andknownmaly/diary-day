@@ -1,6 +1,6 @@
 # Daily Quote
 
-> you will follow. Discipline turns doubt creeps in into success. Believe
+> in yourself; the world doubts you will follow. Small steps every day
 
 ---
 andknownmaly
