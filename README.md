@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Simplicity is the ultimate sophistication.
+> Stay hungry, stay foolish.
 
 ---
 daily
