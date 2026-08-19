@@ -1,6 +1,6 @@
 # Daily Quote
 
-> in yourself; the world doubts you will follow. Small steps every day
+> Everything you can imagine is real.
 
 ---
-andknownmaly
+daily
