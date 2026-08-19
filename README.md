@@ -1,6 +1,6 @@
 # Daily Quote
 
-> Everything you can imagine is real.
+> Simplicity is the ultimate sophistication.
 
 ---
 daily
